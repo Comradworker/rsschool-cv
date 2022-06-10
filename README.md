@@ -1,1 +1,1 @@
-https://Comradworker.github.io/rsschool-cv/cv
+https://Comradworker.github.io/rsschool-cv/
