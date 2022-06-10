@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Comradworker.github.io/rsschool-cv/
